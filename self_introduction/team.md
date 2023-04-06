@@ -1,8 +1,8 @@
 #自己紹介
 
-## [名前]
+## [ikuya suzuki]
 
-### 趣味
+### plant cultivation
 
  + [趣味]
 
