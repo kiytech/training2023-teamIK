@@ -1,11 +1,16 @@
 #自己紹介
 
-## [名前]
+## [ikuya suzuki]
 
-### 趣味
+### plant cultivation
 
  + [趣味]
 
-### [何々]な食べ物 
 
+### [好き]な食べ物 
+　humberger
+
+
+### [嫌い]な食べ物 
+ haribo schnecken
  + [食べ物]
